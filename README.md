@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **ramiro0112@hotmail.com**
 
-- ⚡ Fun fact **i'd like ancient languages**
+- ⚡ Fun fact **I like foreign languages**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
